@@ -1,7 +1,7 @@
 # Jake Ti — HS Design (HEALTH SPACE DESIGN)
 
 Architectural interior design, ergonomic space planning, and turnkey renovation studio in **Johor Bahru, Malaysia** (founded 2018).  
-Registered Business: **HEALTH SPACE DESIGN** · SSM `202603001610 (PG0581660-U)` · **JIDA Member 2024** *(Johor Interior Design Association)*.
+Registered Business: **HEALTH SPACE DESIGN** · **CIDB Malaysia Grade G2 Licensed Contractor** (`0120261123-JH180551` · B04 / CE21 / M15 · Valid `26/11/2026`–`25/11/2028` · [Verify License](https://hsdesign.biz/#verify-cidb)) · SSM `202603001610 (PG0581660-U)` · **JIDA Member 2024** *(Johor Interior Designers' Association)*.
 
 - **Official Website:** [https://hsdesign.biz/](https://hsdesign.biz/)
 - **Services & Engagement Models:** [https://hsdesign.biz/services.html](https://hsdesign.biz/services.html) *(One-Stop Turnkey · Design-Only Blueprints · Independent Site Supervision · Bespoke Millwork)*
